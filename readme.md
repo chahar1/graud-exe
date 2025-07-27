@@ -7,3 +7,8 @@ Download the APK from the given link FOR Andriod;
 https://drive.google.com/file/d/11evHFJjhh9JKHCKdTEX9XpQ7F4Mj9-La/view?usp=sharing
 
 WEBSITE = chaharlogin.ct.ws
+
+
+other studytracker app mobile 
+
+https://drive.google.com/file/d/16shfjKbUG7ejszyj7U6iy01_nWPDvCap/view?usp=sharing
